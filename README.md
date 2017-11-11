@@ -18,3 +18,7 @@ Après avoir laissé le suspense prendre la salle, donner la réponse! "None, be
 5eme étape:
 
 Se tenir droit devant votre publique, fier et majestueux, jusqu'à la fin de la standing ovation. Puis quitter les lieux sans se retourner. 
+
+Conclusion:
+
+Vous êtes le roi de l'humour qui restera dans les anals!
